@@ -5,7 +5,7 @@ Hi, I'm **Younes** 👋
 👯 I’m open to **collaborations** and love helping others in the tech community.  
 🤝 I’m looking for opportunities to grow and **work on innovative projects**.  
 💬 Ask me about anything tech-related, or let's connect on **[Instagram](https://www.instagram.com/younes__ouba/)** | **[LinkedIn](https://www.linkedin.com/in/younes-ouba-4560292a9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)**.  
-⚡ Fun fact: I can debug code faster than I can decide what to eat for lunch! 😄  
+ 
 
 ---  
 

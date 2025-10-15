@@ -4,7 +4,7 @@ Hi, I'm **Younes** 👋
 🌱 Learning **React**, **Next.js**, and **Laravel** to build amazing web applications.  
 👯 Open to collaborations and love helping others in the tech community.  
 🤝 Looking for opportunities to grow and contribute to innovative projects.  
-💬 Feel free to reach out about anything tech-related — or let’s connect on [Instagram](https://instagram.com/younes__ouba) | [LinkedIn](https://linkedin.com/in/younes-ouba).  
+💬 Feel free to reach out about anything tech-related — or let’s connect on [Instagram](https://instagram.com/younes__ouba) | [LinkedIn](https://www.linkedin.com/in/younes-ouba-4560292a9/).   
 
 
 ## 🌐 Socials
